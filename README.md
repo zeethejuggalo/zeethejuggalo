@@ -1,0 +1,8 @@
+- known as **Zee**
+- she/her or they/them
+- deutsch and english 🇺🇸🇩🇪
+- music is my savior
+- KMFDM addict
+- meltyloove on roblox and discord
+- agender and bisexual
+- Ask for more info . . .
