@@ -8,7 +8,7 @@ music is my savior
 
 KMFDM addict!!
 
-meltyloove on roblox and discord
+meltyloove on roblox
 
 agender and biromantic
 
