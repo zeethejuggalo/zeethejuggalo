@@ -10,6 +10,6 @@ KMFDM addict!!
 
 meltyloove on roblox and discord
 
-agender and bisexual
+agender and biromantic
 
 Ask for more info . . . ![e5bf965c](https://github.com/user-attachments/assets/0b3b9637-9062-4b3b-bcaf-17c91eb4a55e)
