@@ -1,11 +1,14 @@
-known as **Zee** ![ed84bf00](https://github.com/user-attachments/assets/b497a1c1-b0b7-4978-9b9d-ac771a576e87)
+known as **Zee** ^__^ ![4ac2013e (1)](https://github.com/user-attachments/assets/007179be-c8db-4a84-8299-4a499f3a669c)
+
 
 she/her or they/them
 
-deutsch and english 🇺🇸🇩🇪
+deutsch and english
 
-KMFDM addict!!
+KMFDM addict!! ( ˶°ㅁ°) !!
 
 meltyloove on roblox
 
-Ask for more info . . . ![e5bf965c](https://github.com/user-attachments/assets/0b3b9637-9062-4b3b-bcaf-17c91eb4a55e)
+
+Ask for more info . . . ![119a7689](https://github.com/user-attachments/assets/cb7a8672-2fbf-4fb5-9025-e44ab3275dd0)
+
